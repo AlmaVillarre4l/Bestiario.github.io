@@ -14,4 +14,5 @@
 
 **Comic** 
 
+[html5up-dimension.zip](https://github.com/AlmaVillarre4l/Bestiario.github.io/files/8191146/html5up-dimension.zip)
 
