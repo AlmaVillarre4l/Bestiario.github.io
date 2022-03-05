@@ -5,6 +5,8 @@
 
 ### Sobre ángeles y demonios 
 
-### Sobre las bestia 
+### Sobre las bestias
 
-![kisspng-american-crow-raven-drawing-rook-sketch-home-page-raven-overwatch-5d0201b630efc7 4724173315604125982005](https://user-images.githubusercontent.com/100175361/156887732-7f2d86b2-c533-4f8e-aae9-d1b9d74490cf.jpg)
+**Comic** 
+
+![png-clipart-crow-crow](https://user-images.githubusercontent.com/100175361/156887779-4e65eac3-125f-4a0c-ae4b-40f13169a5ce.png)
